@@ -1,1 +1,1 @@
-# BASIS-Student-s-Forum-GAI-Chapter
+# BASIS Student's Forum GAI Chapter
